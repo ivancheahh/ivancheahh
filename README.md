@@ -7,3 +7,13 @@ Spaghetti Code Connoisseur
 - High proficiency and familiarity with Parmesan, Oregano, and Italian Herbs on the front end
 
 - Able to seamlessly transition between Pasta, Macaroni, Rotini, and Rigatoni
+
+Hooptie Enjoyer
+
+- 1992 Jeep XJ Laredo I6-4.0L(Weekend Warrior)
+  
+- 1982 GMC 1500 High Sierra I6-250-4.1L(Trash hauler)
+  
+- 1997 Nissan Maxima GLE VQ30DE(Beater)
+  
+- 2017 Kia Forte(Highway Missile)
