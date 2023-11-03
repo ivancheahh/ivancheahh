@@ -12,7 +12,7 @@ Hooptie Enjoyer
 
 - 1992 Jeep XJ Laredo I6-4.0L(Weekend Warrior)
   
-- 1982 GMC 1500 High Sierra I6-250-4.1L(Trash hauler)
+- 1982 GMC 1500 High Sierra I6-250-4.1L(Trash Hauler)
   
 - 1997 Nissan Maxima GLE VQ30DE(Beater)
   
