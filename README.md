@@ -16,4 +16,4 @@ Hooptie Enjoyer
   
 - 1997 Nissan Maxima GLE VQ30DE(Beater)
   
-- 2017 Kia Forte 6MT(Highway Missile)
+- 2023 Mazda CX-5(Suburban People Hauler)
